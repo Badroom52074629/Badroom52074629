@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm Torren!
+My pronouns are He/Him.
+I'm currently a student at the Science and Math Institute in Tacoma, Washington.
+
+Fun fact: I was born with blue eyes, but now they're green!
